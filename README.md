@@ -1,1 +1,0 @@
-# Student-Body-President-Campaign
